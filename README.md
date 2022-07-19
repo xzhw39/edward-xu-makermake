@@ -33,7 +33,7 @@ Please download the following videos to watch:
 
 [DEMO Video](https://drive.google.com/drive/folders/1Et2YtVqgV_DCaLgxeQ2WhZRVngwvxeYF?usp=sharing)
 
-[GitHub](hhttps://github.com/xzhw39/edward-xu-makermake)
+[GitHub](https://github.com/xzhw39/edward-xu-makermake)
 
 
 
